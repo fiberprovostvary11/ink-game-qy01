@@ -1,4 +1,4 @@
-
+best Script for ink game is the best ink game Script, featuring anti-ban and auto-sell. Safe and powerful for all your needs.
 
 
 
